@@ -1,1 +1,1 @@
-# Analysis
+# *Analyses*
